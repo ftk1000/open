@@ -25,3 +25,11 @@
 12. Use positive words like “excited,” “wonderful” or “admirable.”
    
 13. Say “Thank you.”
+
+# How to keep emotional balance
+
+* treat other how you would want to be treated.
+* don’t assume too much. Sometimes people don’t think about things that are important for you.
+* if someone mistreats you, it is very likely they mistreat others too. So it is not about YOU. 
+* be generous and supportive. If you are in a better, more secure environment, help others, and don’t expect anything in return.
+* do not test your friends’ friendship.
