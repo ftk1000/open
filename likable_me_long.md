@@ -45,3 +45,11 @@ By asking publicly for their input and by engaging them, your entire team could 
 13. Say “Thank you.”
    - These two little words carry a lot of weight in relationships. According to a publication by Harvard Medical School, managers who thank their teams may find that their employees are more motivated.
 Giving thanks can boost your feelings about a relationship, too. One study found that partners who express gratitude feel happier and more comfortable in their relationship.
+
+# How to keep emotional balance
+
+* treat other how you would want to be treated.
+* don’t assume too much. Sometimes people don’t think about things that are important for you.
+* if someone mistreats you, it is very likely they mistreat others too. So it is not about YOU. 
+* be generous and supportive. If you are in a better, more secure environment, help others, and don’t expect anything in return.
+* do not test your friends’ friendship.
